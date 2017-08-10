@@ -1,5 +1,4 @@
 ### Song List
-- put ur songs here! 
 
 - Hallelujah - Covered by various artists 
 - I Will Follow You Into the Dark - Death Cab For Cutie 
