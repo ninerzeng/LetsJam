@@ -6,3 +6,5 @@
 - Sound of Silence - Simon and Garfunkel 
 - I am yours - Jason Mraz
 - Land of Gold - Anoushka Shankar
+- Hey Jude - The Beatles (Good starter, very simple)
+- Bad Day - Daniel Powter (simple and easy)
