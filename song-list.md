@@ -8,4 +8,4 @@
 - Land of Gold - Anoushka Shankar
 - Hey Jude - The Beatles (Good starter, very simple)
 - Bad Day - Daniel Powter (simple and easy)
-- All of you - John Legend (Good for piano, easy guitar chords)
+- All of me - John Legend (Good for piano, easy guitar chords)
