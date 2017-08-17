@@ -11,6 +11,12 @@
 - All of me - John Legend (Good for piano, easy guitar chords) - no drums
 - November Rain - Guns N' Roses - piano, guitar, drums and violin
 
+- Sweet Child O' Mine - Guns N' Roses
+- Livin' on a Prayer - Bon Jovi
+- Brown Eyed Girl - Van Morrison
+- I Love Rock and Roll - Joan Jett & The Blackhearts
+- Back in Black - AC/DC
+
 Note to Nina: Can you play with any of the selected one?
 
 P.S. Please keep in mind piano, guitar, drums, violin and fun.
